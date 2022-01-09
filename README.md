@@ -67,4 +67,4 @@ I may update our Privacy Policy from time to time. Thus, you are advised to revi
 
 If you have any questions or suggestions about my Privacy Policy, do not hesitate to contact me at rodgersdevelop@gmail.com.
 
-Last updated: July 20, 2021
+Last updated: January 9, 2022
